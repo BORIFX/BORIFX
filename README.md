@@ -2,7 +2,7 @@
 - 👀 I’m interested in web3
 - 🌱 I’m currently learning trading
 - 💞️ I’m looking to collaborate on more projects
-- 📫 How to reach me twitter
+- 📫 How to reach me twitter @_Omoboriowo
 - 😄 Pronouns: He/ His
 - ⚡ Fun fact: Lazy
 
